@@ -1,0 +1,2 @@
+# premium-marbling-fabric-001-fabric-marbling-alum-mordant
+Tired of guessing alum ratios and mordant timing while your fabric floats drift unpredictably? The Fabric Marbling &amp; Alum Mordant Float Lab gives you a scientific, repeatable system to master every variable that separates amateur marbling from gallery-quality results.  This Notion template transforms fabric marbling from chaotic experimentation int
